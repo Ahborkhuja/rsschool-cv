@@ -1,1 +1,1 @@
-# https://Ahborkhuja.github.io/rsschool-cv/cv
+https://Ahborkhuja.github.io/rsschool-cv/cv
